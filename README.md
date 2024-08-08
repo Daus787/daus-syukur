@@ -1,0 +1,2 @@
+# daus-syukur
+pelajaran kedepan
